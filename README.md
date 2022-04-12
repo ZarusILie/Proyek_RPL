@@ -12,3 +12,8 @@
 
 
 ## Proyek ini dipersembahkan oleh: Kelompok 8
+
+Disusun Oleh: 
+- Lazaruslie Karsono
+- Hannah Gracia
+- Salma Shafira
